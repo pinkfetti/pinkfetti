@@ -1,4 +1,14 @@
-## Hi there 👋
+<div align="center">
+
+[♡](https://music.youtube.com/watch?v=Xr68pOVTK8Q&list=RDAMVMYanJRtiqLuc)
+
+![Image](https://github.com/user-attachments/assets/3ea25a8c-59e1-4b87-b238-e1f2aad0fd3e)
+
+[gunslol](https://guns.lol/karinyan) [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine)
+
+<div align="right">
+
+
 
 <!--
 **pinkfetti/pinkfetti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
